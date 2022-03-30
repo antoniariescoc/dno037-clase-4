@@ -9,3 +9,5 @@ Carolina Alvarez, 24 años, ingeniera comercial y estudiante de fashion business
 ![WhatsApp Image 2022-03-30 at 11 23 49 AM](https://user-images.githubusercontent.com/101259908/160863229-975f4d0c-227d-4a27-a394-d3764f067658.jpeg)
 Ignacia Hughes, 21 años, estudiante de diseño UC de 6 semestre, hecho en su macbook pro 13. Fácil y frecuente uso de la tecnología.
 ![WhatsApp Image 2022-03-30 at 12 38 27 PM](https://user-images.githubusercontent.com/101259908/160875735-5ec676e3-8926-409b-b674-924c5db655a5.jpeg)
+Cristobal Riesco, estudiante arquitectura UDD, hecho en su macbook pro 13. Fácil y frecuente uso de la tecnología.
+![mi_atacazo_artistico (3)](https://user-images.githubusercontent.com/101259908/160877120-63d4d7c5-a8d4-43ff-ae42-212d85dd91ae.jpg)
